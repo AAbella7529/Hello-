@@ -8,8 +8,8 @@ I am a tech enthusiast's currently using Github and Discord for my coding and cy
 
 My purpose is to gain skills and experience in this field. I enjoy studying and learning. 
 
-To Future-Proof my IT skills in the Digital Age / Digital Transformation, The Internet of Things and AI - Artificial Intelligence. 
+Future-proofing my IT skills in the Digital Age / Digital Transformation, The Internet of Things and AI - Artificial Intelligence. 
 
-I have a keen interest in Creative Design and Web Design.  
+I have a keen interest in AI, Web Design and  Creativity.  
 
 
