@@ -1,4 +1,6 @@
-# Hello! - Hi :wave: 
+![HEllo](https://github.com/AAbella7529/Hello-/assets/158771536/4c1c0c1f-ef30-4c45-b236-3f7984a164b6)
+
+ Hi :wave: 
 
 Thanks for following.
 
